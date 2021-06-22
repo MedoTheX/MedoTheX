@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MedoTheX
-- 👀 I’m interested in games, art, music, soccer, beatboxing, astronomy and hot girls
+- 👀 I’m interested in games, pets, art, music, soccer, beatboxing, life quotes and astronomy
 - introvert, 16 years old, man
 - 🌱 I’m currently learning at a school in egypt( I am in Grade 11 rn)
 - 💞️ I’m looking to collaborate on games like Destiny 2
